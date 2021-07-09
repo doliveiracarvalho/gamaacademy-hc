@@ -1,2 +1,2 @@
-Curso sensacional. Os professores são ótimos!
+Curso sensacional! Os professores são ótimos!
 
